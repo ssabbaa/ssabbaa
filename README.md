@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ssabbaa
 - 👀 I’m interested in gaining skills and creating projects.
 - 🌱 I’m currently learning how to bulid software platforms.
-- 📫 I can be found on twittwr @saba1l 🥰 and I'd love advice. 
+- 📫 I can be found on twitter @saba1l 🥰 and I'd love advice. 
